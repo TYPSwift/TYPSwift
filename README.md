@@ -1,5 +1,5 @@
 ### Hello, I'm A.B. Allani👋
-
+- 📫 Reach me at aallani@ufl.edu
 
 
 <!--
